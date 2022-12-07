@@ -9,6 +9,8 @@
 - Fly Tying Gift Card - https://www.jsflyfishing.com/
 - Fish measuring board - https://www.amazon.com/YakGear-Fish-Stik-Sunset-Orange/dp/B073SCSZFJ/
 - Guitar Leg Rest - https://www.amazon.com/Professional-Ergonomic-Footstool-Classical-Flamenco/dp/B019MIPZ8M/
+- NYT CookBook - https://www.amazon.com/York-Times-Cooking-No-Recipe-Recipes/dp/1984858475/
+- KAF book - https://www.amazon.com/King-Arthur-Baking-School-Lessons/dp/1682686159/
 
 ### $50+
 - Hardcore History Past Episodes https://www.dancarlin.com/product/hardcore-history-compilation-episodes-1-55/
